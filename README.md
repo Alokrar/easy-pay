@@ -1,2 +1,1 @@
-# easy-pay
-paying app
+alokray. com
