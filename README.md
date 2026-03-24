@@ -1,1 +1,1 @@
-alokray. com
+alokray. co
